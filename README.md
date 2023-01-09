@@ -1,6 +1,8 @@
 # Unlimited Money through Manual SWP
 Lifetime unlimited money through manual SWP in mutual funds
 
+<a href="https://groww.in/blog/how-to-start-a-stp-and-swp-on-grow" target="_blank">How To Start A STP And SWP On Groww</a>
+
 Suppose you have 1k society maintainance bill:<br/>
 <img src="https://user-images.githubusercontent.com/298479/211427372-1c588820-b3f3-4d67-ad82-82f03304151a.png" width="60%"/>
 
